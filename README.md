@@ -1,2 +1,0 @@
-# megaupload
-megaupload nft platform 
